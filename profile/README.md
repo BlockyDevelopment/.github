@@ -1,1 +1,1 @@
-[# BlockyPlayz.de - Development](https://discord.gg/CYXNxrmUMN)
+# [BlockyPlayz.de - Development](https://discord.gg/CYXNxrmUMN)
